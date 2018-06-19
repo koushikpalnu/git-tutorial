@@ -1,2 +1,2 @@
 Vinay Hegde
-Koushik Pal
+Koushik Pal, PhD
